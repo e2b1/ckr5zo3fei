@@ -32,7 +32,7 @@ Cela grupa ljudi koja je dox-ovana su klinci tačnije balavci koji nisu u stanju
 * [Instagram](https://www.instagram.com/krickicjankoo/) (60% sam siguran da je ovo njegov instagram profil)
 
 ### Adresa
-Prema informacijama sa [Belih Strana](http://www.11811.rs/BeleStrane/Index/), postoje 1 moguće adresa:
+Prema informacijama sa [Belih Strana](http://www.11811.rs/BeleStrane/Index/), postoji 1 moguća adresa:
 * **Jelena Kričkić (majka)**, Kneza Mihajla 114, 34300 Aranđelovac (034/713-570)
 ---
 ## **[Gruja (Srećko Grujić)](https://steamcommunity.com/profiles/76561198328456437/)**
